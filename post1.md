@@ -14,5 +14,3 @@ Time independence means I can manage my time how I please. And I spend a good am
 I want to wield power through money and wave it around like *poof* your mortgage is paid, *poof* here is a scholarship fund for disadvantaged youth to get educated, *poof* here is a fund for poor grad students to attend international conferences, *poof* here is the money to upgrade the infrastructures of zip codes that are causing children to be sick because of the environmental pollution. I want to be free from people I do not like telling me what to do and how to do it and how to be because I don’t have the power to make my own choices. I can and I will make this happen. 
 
 So, let’s get to it. 
-
-![image](https://github.com/user-attachments/assets/0fd6b53e-d822-4b08-8526-4cfee3347f29)

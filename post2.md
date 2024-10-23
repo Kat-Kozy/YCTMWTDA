@@ -1,4 +1,4 @@
-#Belief in myself 
+# Belief in myself 
 
 Hello again. It is day two, October 22, 2024, of publishing a blog post on “you can’t tell me what to do anymore  I am financially free and spend my money and my time as I will” central. What to write about today? Well, yesterday was implementing the bias for action. Today is belief. Belief in yourself. Belief in myself. 
 
